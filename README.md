@@ -4,7 +4,7 @@ What is OKex?
 
 OKEx is a Malta-based trade which is presently considered as one of the biggest crypto-to-crypto trades on the planet. OKEx has its workplaces situated in Malta, Hong Kong, Beijing and Malaysia. 
 
-<a href="https://coinpedia.org/exchange/okex-exchange/">OKex</A> offers their clients the occasion to exchange Futures, never-ending trades and alternatives markets. These choices give the dealers a novel method to exchange the crypto markets. 
+<a href="https://coinpedia.org/exchange/okex-exchange/">OKex Exchange</A> offers their clients the occasion to exchange Futures, never-ending trades and alternatives markets. These choices give the dealers a novel method to exchange the crypto markets. 
 
 OKex has served a large number of clients in excess of 100 nations with a BTC fates exchange day by day volume of over $1.5 Billion. OKEx is presently positioned eleventh by exchanging volume as indicated by Coinmarketcap. 
 
